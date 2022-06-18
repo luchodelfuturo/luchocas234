@@ -1,3 +1,1 @@
-I'm passionate about technology and businesses. Always learning trends and updating projects, I love innovation and creative solutions.
-I have the experience from +5 years working for Entrepreneurs and Local Shops using Digital Marketing to get their goals.
-I would like to develop webs with the newest technology for your projects. We can create uniques things, let's talk!
+I am passionate about technology and business. I am always learning new trends and updating projects, I love innovation and creative solutions. I have more than five years of experience working with businesses and brands that use Digital Marketing to achieve their commercial objectives. I would like to develop digital solutions for your ideas. We can create unique things, let's talk!
